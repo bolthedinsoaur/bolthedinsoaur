@@ -1,3 +1,0 @@
--  Hi, I’m @bolthedinsoaur
--  
--  How to reach me brianbolt09@gmail.com 
